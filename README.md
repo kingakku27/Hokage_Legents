@@ -1,0 +1,2 @@
+# Hokage_Legents
+Naruto_Hokage_Legents
